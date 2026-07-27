@@ -1,3 +1,3 @@
 # DSA
 
-mannu is a RAND
+mannu is a chutad
